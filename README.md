@@ -1,0 +1,1 @@
+Informações geradas por IA
